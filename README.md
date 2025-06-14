@@ -1,0 +1,1 @@
+# bandicam-pro-free
